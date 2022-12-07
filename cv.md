@@ -8,3 +8,4 @@ I haven't any skills now.
 No code
 No experience
 Belarussian State Medical University
+English: A2

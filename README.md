@@ -1,1 +1,1 @@
-# rsschool-cv
+https://lionkaa.github.io/rsschool-cv/
